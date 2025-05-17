@@ -1,1 +1,1 @@
-# viva-decore
+# viva-decor
